@@ -1,6 +1,6 @@
 ![](https://raw.githubusercontent.com/tonypithony/app_voor_onregelmatige_werkwoorden/refs/heads/main/i.jpg)
 
-![](https://raw.githubusercontent.com/tonypithony/app_voor_onregelmatige_werkwoorden/refs/heads/main/b81d9838-5f03-4920-baa1-85cd2acab23a.PNG)
+![](https://raw.githubusercontent.com/tonypithony/app_voor_onregelmatige_werkwoorden/refs/heads/main/b81d9838-5f03-4920-baa1-85cd2acab23a.png)
 
 ![](https://raw.githubusercontent.com/tonypithony/app_voor_onregelmatige_werkwoorden/refs/heads/main/i-3.jpg)
 
