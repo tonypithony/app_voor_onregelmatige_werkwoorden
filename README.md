@@ -6,4 +6,4 @@
 
 ![](https://raw.githubusercontent.com/tonypithony/app_voor_onregelmatige_werkwoorden/refs/heads/main/1659391314_63-kartinkin-net-p-amsterdam-zimoi-priroda-krasivo-foto-70.jpg)
 
-![](https://raw.githubusercontent.com/tonypithony/app_voor_onregelmatige_werkwoorden/refs/heads/main/1766835631.PNG)
+![](https://raw.githubusercontent.com/tonypithony/app_voor_onregelmatige_werkwoorden/refs/heads/main/1766835631.png)
